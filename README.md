@@ -3,6 +3,7 @@
 
 ## Data Analyst, Health And Nutrition Professional & Tech Enthusiast 
 I'm Ugwu Ruth Chekwubechukwu, A Dietitian in Tech and an entry level Data Analyst turning Data into Actionable Insights for Business, Health, and Nutrition organisations to improve outcomes.
+<hr />
 
 - Currently a Data Analytics Intern at [Wisebreed Analytics](https://www.linkedin.com/company/wise-breed-analytics/) (WBA Limited)
 - Connect with me on [Linkedin](https://www.linkedin.com/in/ruthchekwube) and [Instagram](https://www.instagram.com/ruthy_fruitty1?igsh=c3pybGI1c2JoY2Zt)
