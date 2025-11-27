@@ -1,4 +1,5 @@
-![RuthChekwube](https://github.com/user-attachments/assets/a204996d-464c-498a-b0e4-211e372d8ba8)
+<img width="1584" height="396" alt="White and Black Simple Marketing LinkedIn Banner" src="https://github.com/user-attachments/assets/30f7ca99-ecfd-420f-b525-4a148d258441" />
+
 <hr />
 
 ## Data Analyst, Health And Nutrition Professional & Tech Enthusiast 
